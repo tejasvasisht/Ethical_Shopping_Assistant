@@ -1,0 +1,1 @@
+# Ethical_Shopping_Assistant
